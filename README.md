@@ -42,4 +42,4 @@ Para indivíduos com TEA, o xadrez pode ser uma ferramenta valiosa para:
 - Reduzir sintomas de ansiedade e estresse
 - Aumentar autoconfiança e autoestima
 
-Se você conhece alguém com TEA que joga xadrez, ou está procurando atividades terapêuticas, o xadrez pode ser uma opção excelente!
+Aqui na Academia Araxaense de Xadrez ensinamos metodologia que benefícia alunos com o Autismo, Se você conhece alguém com TEA, ou está procurando atividades terapêuticas, o xadrez pode ser uma opção excelente!
